@@ -1,1 +1,0 @@
-# ethan-white.github.io
